@@ -2,7 +2,7 @@
 - 👀 I’m interested in Ark Survival collaborative Open World games
 - 🌱 I’m currently learning Ark Modding
 - 💞️ I’m looking to collaborate on anything Ark related
-- 📫 How to reach me mothergooseakasararibble@gmail.com
+- 📫 You can reach me mothergooseakasararibble@gmail.com
 - ⚡ Fun fact: I am the founder of Aras Ark, your home on the Arks.
 
 <!---
