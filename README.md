@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @goosenation
+- 👋 Hi, I’m @goosenation aka Mother Goose
 - 👀 I’m interested in Ark Survival collaborative Open World games
 - 🌱 I’m currently learning Ark Modding
 - 💞️ I’m looking to collaborate on anything Ark related
